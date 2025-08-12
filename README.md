@@ -1,1 +1,1 @@
-coding with using ai , assisment 2
+coding with using ai , as-2
